@@ -1,1 +1,1 @@
-arition-businessmanager.site
+clickminagency.com
